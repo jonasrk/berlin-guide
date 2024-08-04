@@ -37,6 +37,16 @@
 - Prater Biergarten
 - 1990 vegan living 🟡
 - Benedict
+- Tacos el Oso
+- Kitten Deli
+- Cafe Chagall
+- Duo Eisladen (fhain & xberg)
+- Martkhalle 9
+- Don Xuan Center
+- Thaiwiesen
+- Oderbaumbrücke schickes Restaurant
+- Otto
+- Clipper
 
 ### Asian
 
@@ -89,6 +99,7 @@
 - Deutschlandticket
 - Fahrräder ausleihen
 - Emmys ausleihen
+- it takes long to go from one part of the city to the other
 
 ## Party
 
@@ -128,3 +139,7 @@
 ## Museum
 
 - Topografie des Terrors
+
+## Seasonal
+
+- Thaiwiesen
