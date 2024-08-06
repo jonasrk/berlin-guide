@@ -1,6 +1,6 @@
 - 🟠 (Over?-)hyped but still considered good
 - 🟡 Toni's personal tipps
-- 🔵 Jonas's personal tipps (🔵🔵 for highly recommended)
+- 🔵 Jonas's personal tipps as a local Berlin aka off-the-beaten-tourist-path (🔵🔵 for highly recommended)
 
 # berlin-guide
 
@@ -44,26 +44,26 @@ I have lived here full-time now for 45mins and never had any issues. Even most s
 
 ## Food
 
-- Takumi Nine Tonkotsu
+- Takumi Nine Tonkotsu 🔵
 - Chaomin Congeee
-- Schnitzelei German Tapas
-- Eins unter Null
+- Schnitzelei German Tapas 🔵
+- Eins unter Null 🔵
 - Zenner Biergarten
-- Prater Biergarten
+- Prater Biergarten 🔵
 - 1990 vegan living 🟡
 - Benedict
-- Tacos el Oso
+- Tacos el Oso 🔵
 - Kitten Deli
-- Cafe Chagall
+- Cafe Chagall 🔵
 - Duo Eisladen (fhain & xberg)
-- Martkhalle 9
+- Martkhalle 9 🟠
 - Don Xuan Center
 - Thaiwiesen
 - Oderbaumbrücke schickes Restaurant
 - Otto
 - Clipper
 - Barra
-- Pasternak
+- Pasternak 🔵
 
 ### Asian
 
@@ -91,14 +91,14 @@ I have lived here full-time now for 45mins and never had any issues. Even most s
 
 ### Sweets
 
-- Gianni's Eiscreme
+- Gianni's Eiscreme 🔵
 
 ## Things to do
 
 - Stroll along Spree (Monijoupark Tanzfläche)
 - Flohmarkt am Boxhagener Platz 🟡
 - Mauerpark 🟠
-- Park Inn Hotel observation deck
+- Park Inn Hotel observation deck 🔵
 - Reichstagskuppel
 - Tempelhofer Feld (by bike?)
 - If you fancy an occasional alcoholic drink, make use of the fact that public drinking is not only legal but also accepted in Germany. So go for an extended city walk with a beer or ...
@@ -122,7 +122,7 @@ I have lived here full-time now for 45mins and never had any issues. Even most s
 - Private Sauna Rooms for rent
 - Saunabad Rykestr. (very small - for locals) 🔵
 - Badedampfer
-- Spa in the Grand Hyatt (probably the best hotel spa in Berlin)
+- Spa in the Grand Hyatt (probably the best hotel spa in Berlin) 🔵
 
 ## Greens
 
@@ -159,15 +159,15 @@ I have lived here full-time now for 45mins and never had any issues. Even most s
 ### Summer
 
 - Thaiwiesen
-- Open Air Cinema
+- Open Air Cinema 🔵
 
 ## Movies / Shows
 
 - Berlin - Schicksalsjahre einer Stadt (This is so cool - it's a full hour documentary for every single year since 1949 - explaining what has happened in Berlin in this year.)
 - Victoria
-- Good bye Lenin
+- Good bye Lenin 🔵
 - Liebling Kreuzberg
-- Prinzessinnenbad
+- Prinzessinnenbad 🔵
 - Bar25 - Tage außerhalb der Zeit (Only if you're interested in the more recent, hedonistic party-culture)
 
 ## External links
