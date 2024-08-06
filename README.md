@@ -1,6 +1,6 @@
 - 🟠 (Over?-)hyped but still considered good
 - 🟡 Toni's personal tipps
-- 🔵 Jonas's personal tipps as a local Berlin aka off-the-beaten-tourist-path (🔵🔵 for highly recommended)
+- 🔵 Jonas's personal tipps as a local Berliner aka. off-the-beaten-tourist-path (🔵🔵 for highly recommended)
 
 # berlin-guide
 
@@ -12,7 +12,7 @@ I usually aim to tip around 10% if I've received good service. This is only for 
 
 ### Bad Service
 
-If you're coming from a place that puts a lot of emphasis on service culture, be prepared for the worst in Berlin and Germany in General. Be happy if you're food and drink is good and take everything else as a nice bonus. :)
+If you're coming from a place that puts a lot of emphasis on service culture, be prepared for the worst in Berlin and Germany in general. Be happy if your food and drink is good and take everything else as a nice bonus. :)
 
 ### Water in restaurants
 
@@ -24,7 +24,7 @@ Tap water is save to drink in the entire country and everyone I know drinks it d
 
 ## Understand Berlin
 
-- Former division: You will have a much richer experience if you try to understand how the mechanics of the German division (1949-1990) worked. You can see countless things everywhere you look that can be explain by Berlin having been two (very different cities) not so long ago. While moving around in the city, try to understand if you're positioned in former East- or West-Berlin.
+- Former division: You will have a much richer experience if you try to understand how the mechanics of the German division (1949-1990) worked. You can see countless things everywhere you look that can be explained by Berlin having been two (very different cities) not so long ago. While moving around in the city, try to understand if you're positioned in former East- or West-Berlin.
 
 ## Transportation
 
@@ -40,7 +40,7 @@ Berlin doesn't have a classic city center and getting from one sub-center to ano
 
 ## Stay safe
 
-I have lived here full-time now for 45mins and never had any issues. Even most single women I know take public transort late at night. You might have an occasional (harmless) crazy person on your train but that matches my experience in pretty much every other major metropolis I've visited. There has been an increase in homelessness in the more recent years.
+I have lived here full-time now for 11 years and never had any issues. Even most single women I know take public transort late at night. You might have an occasional (harmless) crazy person on your train but that matches my experience in pretty much every other major metropolis I've visited. There has been an increase in homelessness in the more recent years.
 
 ## Food
 
