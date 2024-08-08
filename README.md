@@ -104,6 +104,7 @@ I have lived here full-time now for 11 years and never had any issues. Even most
 - If you fancy an occasional alcoholic drink, make use of the fact that public drinking is not only legal but also accepted in Germany. So go for an extended city walk with a beer or ...
 - Sit with a drink in front of any "Späti" like the locals.
 - Tretboot
+- Spend 200 EUR for eFoiling on Müggelsee for 2 hours for an unforgettable experience. 🔵🔵
 
 ## Classic spoken drama / theatre
 
