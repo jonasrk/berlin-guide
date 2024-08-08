@@ -105,6 +105,10 @@ I have lived here full-time now for 11 years and never had any issues. Even most
 - Sit with a drink in front of any "Späti" like the locals.
 - Tretboot
 
+## Classic spoken drama / theatre
+
+- Berlin has a rich history of spoken theatre shows (that's something different from musicals - more "serious") that might not be very prevalent in your country or region. It has some of the best houses and tickets are usually cheap. Seeing a play would be a very classic and civilized way to spend an evening out. The pro-tip here is to watch the trailers online first to identify the shows you might be interested in. 🔵🔵
+
 ## Not specific to Berlin, but available in good quality
 
 - Board game cafes
